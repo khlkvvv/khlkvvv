@@ -1,5 +1,4 @@
-- 👋 Hi, I’m Xoliqov JVOHIR
-- 👀 I’m interested in Coding👨🏻‍💻 and Volleyball🏐
+- 👋 Hi, I’m Xoliqov Javohir
+- 👀 I’m interested in Coding👨🏻‍💻
 - - 🌱 I’m currently learning Coding(Full Stack)
 - 📫 You can reach me in Instagram: khlkvvv, Telegram: khlkvvvv, Email: karonaworkout@gmail.com
-- I'm student of Astrum IT Academy :-)
